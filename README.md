@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning... programming.
 - 💞️ I’m looking to collaborate on ... development or find peace.
 - 📫 How to reach me ... 
-- 😄 Pronouns: ... with kind and positive sense.
+- 😄 Pronouns: ... any word with kind and positive sense.
 - ⚡ Fun fact: ... I am not a GOD. LOL
 
 <!---
