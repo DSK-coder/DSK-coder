@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DSK-coder
-- 👀 I’m interested in something new technology and development.
+- 👀 I’m interested in something new like in technology and development.
 - 🌱 I’m currently learning... programming.
 - 💞️ I’m looking to collaborate on ... development or find peace.
 - 📫 How to reach me ... 
